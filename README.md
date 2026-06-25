@@ -156,4 +156,61 @@ That finally learned
 If you ask me my name
 I’ll say “Here, right now.”
 If you ask me my job
-I’ll say “Still figuring out how.”
+I’ll say “Still figuring out how.”..
+
+
+rock, Laid-back electric blues-rock groove, male or female soul vocals. Clean tremolo guitar and warm tube overdrive, walking bass, roomy drums with swung backbeat. Verses stay intimate and low, letting the vocal grit peek through; chorus widens with doubled vocals, call-and-response ad-libs, and sustaining organ pads. Occasional guitar fills answer vocal phrases, with a tasteful middle-8 solo that climbs, then settles back into a steady, unshakeable pocket., soul, electric, motivating, blues, theme, classic
+
+[Verse 1]
+Step out the door
+Same cracked sidewalk
+Different eyes
+Every setback
+Blueprint
+Every scar
+I revise
+
+I got lists in my pocket
+Habits stacked like bricks in a line
+What tried to break me
+Taught me
+How to build on borrowed time
+
+[Chorus]
+I got systems in my bones
+Reflex runs deep
+I move
+I flow
+Calm in the storm
+I bend
+Don’t fold
+I stay ready
+I stay ready
+For anything that comes
+I’m gold
+
+[Verse 2]
+I don’t keep your picture
+I don’t drag your name through the dirt
+I turn that heat to motion
+Turn old anger into work
+
+I map my mornings
+Tiny turns that steer the day
+One small choice
+Then another
+‘Til the fear just fades away
+
+[Chorus]
+
+[Bridge]
+Foot on the floor
+But my heart ain’t racing
+Slow steady burn
+That’s the life I’m chasing
+Every hit I took just trained my mind
+Now I rise on cue
+On cue
+On time
+
+[Chorus]
