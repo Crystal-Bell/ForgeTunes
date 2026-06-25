@@ -100,4 +100,60 @@ Still me.
 
 
 ...
+next...
+male vocals, guitar, l, female vocals, funk..
 
+
+
+I woke up with a list
+But I didn’t obey it
+The clock made a noise
+And I gently betrayed it
+I tied up my shoes
+Then I sat back down
+Because moving too fast
+Is how I used to drown
+I’ve been busy being busy
+I’ve been paid to pretend
+But today I just noticed
+I don’t need to defend
+I fold what I can
+I leave what I can’t
+I don’t make a promise
+I don’t make a rant
+I used to run forward
+With a mirror behind
+Now I walk with my shadow
+And we mostly align
+No bell, no whistle
+No finish-line math
+Just a cup on the counter
+And a reasonable path
+If I stop, I stop
+If I go, I go
+I don’t force the weather
+I just check for snow
+They said “What’s the plan?”
+I said “Still forming.”
+They said “What’s the point?”
+I said “Still forming.”
+I don’t sparkle on purpose
+I don’t dim for a role
+I’m not fixing the world
+I’m just tightening a bolt
+Some days I sing loud
+Some days I hum low
+Some days I don’t touch it
+I just let it know
+I am not late
+I am not early
+I arrive when the system
+Stops yelling at me
+No cape, no crash
+No dramatic turn
+Just a quiet little engine
+That finally learned
+If you ask me my name
+I’ll say “Here, right now.”
+If you ask me my job
+I’ll say “Still figuring out how.”
