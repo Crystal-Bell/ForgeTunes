@@ -205,6 +205,8 @@ If you ask me my name
 I’ll say “Here, right now.”
 If you ask me my job
 I’ll say “Still figuring out how.”..
+...
+
 
 
 rock, Laid-back electric blues-rock groove, male or female soul vocals. Clean tremolo guitar and warm tube overdrive, walking bass, roomy drums with swung backbeat. Verses stay intimate and low, letting the vocal grit peek through; chorus widens with doubled vocals, call-and-response ad-libs, and sustaining organ pads. Occasional guitar fills answer vocal phrases, with a tasteful middle-8 solo that climbs, then settles back into a steady, unshakeable pocket., soul, electric, motivating, blues, theme, classic
@@ -262,3 +264,99 @@ On cue
 On time
 
 [Chorus]
+....
+
+because it's funny:
+(and I dislike 800#s)
+https://suno.com/s/uByghg41v5CoHuqg
+
+.
+..[0–2s | ignition / key turn]
+(deadpan)
+“Eight hundred twelve thousand miles…”
+[2–4s | dashboard close-up]
+“…and we forgot the oil cap.”
+[4–6s | record scratch beat]
+WHO FORGOT IT?
+—OIL CAP
+[6–8s | hood pop / cutaway]
+WHO SAVED IT?
+—TRANS GUY
+[8–11s | driving slow / side glance cam]
+“Yeah… so we’re not going fast today.”
+[11–13s | instant cut / bass hit]
+(whisper)
+“…but we know how.”
+[13–16s | quick speedometer flash / NOT moving]
+WE KNOW.
+WE JUST DON’T.
+*[16–19s | rhythmic chant, claps or beat hits]
+CHECK IT
+LOCK IT
+LOOK AGAIN
+[19–22s | hood / gauges / nodding heads]
+CHECK IT
+LOCK IT
+FRIENDS DON’T LIE
+*[22–25s | relaxed cruise shot]
+Same car
+New respect
+*[25–28s | smile / laugh / road ahead]
+Fast once
+Learned forever
+*[28–30s | cut to black or logo]
+STILL ROLLIN’
+(loop back to ignition)chant-only version for loopingYeah…
+Wednesday...
+Still buildin’.
+Ain’t nobody ready.
+[Verse 1]
+Walk in early, lights still cold
+Blueprint brain, but my hands stay bold
+Eight ideas movin’, one clear plan
+Everybody talkin’, I’m already jammed
+Dust on my jeans, marks on the wall
+If it don’t work first try, I still won’t stall
+Measure twice, cut once, then again
+I don’t decorate space—I make it begin
+[Pre-Chorus]
+They see chaos, I see flow
+They ask why, I already know
+If it’s broken, bring it here
+I don’t wait for perfect—I engineer
+[Chorus]
+I build, I build, I build it up
+From scraps, from notes, from “not enough”
+While they pose, I’m movin’ parts
+Systems first, then soul, then art
+Yeah—I build, I build, I stay
+Hands in the work, night to day
+[Verse 2]
+Floor-first thinker, walls come later
+Ideas stacked like freight on a trailer
+No throne needed, but I made my seat
+Rest is earned when the frame stays neat
+I don’t chase shine, I chase fit
+If it holds weight, yeah, I trust it
+Quiet wins, long game played
+Proof’s in the use, not words I say
+[Pre-Chorus]
+They scroll past, I slow-cook time
+Every tool got a reason, every line
+If it lasts, that’s the flex
+I don’t trend—I connect
+[Chorus]
+I build, I build, I build it right
+Not for clout, just for life
+While they watch, I move the load
+Make a place where the future knows
+Yeah—I build, I build, I stay
+Practice human, doin’ every day
+[Outro]
+Yeah…
+Still buildin’.
+Always was.
+https://suno.com/s/8Mdp20qPmVhYRkY7...
+
+
+
